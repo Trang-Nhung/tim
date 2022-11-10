@@ -1,2 +1,0 @@
-# tim
-trái tim
